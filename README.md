@@ -1,0 +1,2 @@
+# anomali
+tebak apa hayo
